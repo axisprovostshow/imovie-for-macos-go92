@@ -1,4 +1,4 @@
-# 
+# automatic iMovie for macOS Preset | lens-flare + echo-removal offers the most advanced iMovie for macOS preset, with lens-flare and echo-removal. Ideal for professional video
 
 
 
